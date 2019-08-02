@@ -1,1 +1,0 @@
-## Angelo A. Juanico
